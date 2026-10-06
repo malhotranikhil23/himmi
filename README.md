@@ -1,2 +1,2 @@
-# himmi
+# himani
 Wedding invitation
